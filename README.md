@@ -6,7 +6,7 @@ I enjoy watching a variety of TV series, but there are a few that stand out as m
 
 ## The Boys
 
-![The Boys](https://www.google.com/url?sa=i&url=https%3A%2F%2Fhnmag.ca%2Fthe-bottom-line%2Fwhat-to-expect-from-the-boys-season-four%2F&psig=AOvVaw0Z3V3cz8yFSI0Cjg9kRt_5&ust=1719372816057000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKiOlYTp9YYDFQAAAAAdAAAAABAE)
+![The Boys](https://hnmag.ca/wp-content/uploads/2023/05/Screenshot-2023-05-29-at-8.29.03-PM.png)
 
 *The Boys* is a gritty take on what happens when superheroes, who are often revered as symbols of hope and justice, become corrupt by their celebrity status and power. This series delves into the darker side of superpowers, presenting a world where heroes are not always what they seem.
 
